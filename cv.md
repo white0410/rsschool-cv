@@ -4,4 +4,4 @@
 * email - belash1987@mail.ru
 * phone - +375 29 288 04 11
 * www.linkedin.com/in/andrei-belash
-* Englisg A2
+* English A2
